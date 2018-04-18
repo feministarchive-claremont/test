@@ -3,3 +3,9 @@ This archive will be a collection of feminist, disability studies, critical race
 
 
 example of an archive: http://smithsonian.tumblr.com/ 
+
+
+We will have many folders organized by class and semester
+
+
+Work can be submitted anonymously. 
